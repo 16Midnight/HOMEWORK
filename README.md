@@ -103,5 +103,6 @@ They are performing pretty well thanks to having the most competitive fees, a fr
 ### If you were to advise the company, what products or services would you suggest they offer? (This could be something that a competitor offers, or use your imagination!)
 
 More diversification of portfolio strategies consistent with the Millennial values like environmentally friendly companies (ESG)or without companies dealing with arms companies etc.
+
 =======
 
